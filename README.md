@@ -2,4 +2,4 @@
 
 A metropolia university project
 
-https://user-images.githubusercontent.com/95407806/213881812-d7029239-8199-4b37-afb8-49325c3a2d1a.mp4
+https://user-images.githubusercontent.com/95407806/213885825-033e2e1b-1acd-49ae-95cb-806065344af6.mp4
